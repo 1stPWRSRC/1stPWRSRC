@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning how to code and how to trade using algorithms 
 - 🌱 I’m currently learning ChatGTP
 - 💞️ I’m looking to collaborate on ... TBD
-- 📫 How to reach me ... a1donbar70@gmail.com 
+- 📫 How to reach me ... a1donbar70@gmail.com
 - 😄 Pronouns: ... 
 - ⚡ Fun fact: ... I love making beats, learning economics, anime, smart women (so attractive) & making money
 
