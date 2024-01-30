@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... TBD
 - 📫 How to reach me ... pwrsrc@pwrsrc.biz 
 - 😄 Pronouns: ... 
-- ⚡ Fun fact: ... I love making beats, learning economics, anime, smart women (so attractive) & making money
+- ⚡ Fun fact: ... I love making music, watching anime, smart women (so attractive) & making money
 
 <!---
 1stPWRSRC/1stPWRSRC is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
